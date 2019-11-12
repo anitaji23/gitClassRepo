@@ -1,0 +1,1 @@
+This is a readme document with the Travel to Korea website files. Just because Korea is a beautiful place and need more appreciation. 
